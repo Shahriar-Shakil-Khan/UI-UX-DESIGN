@@ -16,4 +16,7 @@ https://www.figma.com/design/sWKSU87dFe1JVdB8KXNcRd/Untitled?t=xLJB3bjqnZmBy6BY-
 5) Coffe Shop :
 https://www.figma.com/design/IzS979QqJk5nuiEPLItaYr/Untitled?t=xLJB3bjqnZmBy6BY-1
 
+6) Fresh Fruit Supply : (Academic)
+https://www.canva.com/design/DAGQjghAFZE/Jk4hfub_zSvxBoNsVhM9IQ/edit?utm_content=DAGQjghAFZE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
 
